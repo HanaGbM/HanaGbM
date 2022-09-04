@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @HanaGbM
-- 👀 I’m interested in medical coding and Artificial intelligence 
+- 👀 I’m interested in medical coding , Business development with Artificial intelligence 
 - 🌱 I’m currently learning computer science in Truman State university 
 - 💞️ I’m looking to collaborate on medical innovation 
 - 📫 How to reach me https://www.linkedin.com/in/hana-sheto-1458381b7
